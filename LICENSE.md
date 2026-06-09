@@ -1,4 +1,4 @@
-# 
+# Personalizado Adobe Photoshop ferramentas para Mac OS | Elite Adobe Photoshop ferramentas para PC Windows. Com estabilizador e modos de mesclagem de camadas — otimizado para máximo desempenho em cada plataforma.
 
 
 
